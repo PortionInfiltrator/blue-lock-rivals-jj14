@@ -1,4 +1,4 @@
-
+advanced Scripts for blue lock rivals is the best blue lock rivals Script, featuring auto-heal and custom skins. Safe and powerful for all your needs.
 
 
 
